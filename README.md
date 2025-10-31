@@ -90,5 +90,5 @@ Breaks down revenue by special events like **Anniversary, Valentine’s Day, Rak
 ## **Author**
 
 [Sharad Shukla]<br>
-[Email](sharad7080067795@gmail.com)<br>
+[Email](https://mail.google.com/mail/u/0/#inbox))<br>
 [LinkedIn](https://www.linkedin.com/in/sharadshukla-/)
